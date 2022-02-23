@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @CSHwak
 - 👀 I’m interested in **SPORTS**
 - 🌱 I’m currently learning **DESIGN**
-- 💞️ I’m looking to collaborate on ...
+- 💞️ 
 - 📫 How to reach me ... @CSHWAHAK
 
 <!---
